@@ -4,4 +4,4 @@ Kemon asen sobai 🥀
 
 Alhamdulillah ami valo aci🥀
 
-Acca jai khumamo🥱
+Acca jai Ghumamo🥱
